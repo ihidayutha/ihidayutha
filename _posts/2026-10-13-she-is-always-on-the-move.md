@@ -59,6 +59,7 @@ WE COME OFF LIKE TOUPEES
 THE NEW PHRASE
 ADVOCATES OF THE THEOCRATIC RULE
 
-https://youtu.be/9dDYjS4W0BM
+[![Cypha Timel](https://img.youtube.com/vi/9dDYjS4W0BM/0.jpg)](https://www.youtube.com/watch?v=9dDYjS4W0BM "Cypha Time")
 
-https://youtu.be/m5wsINQBorY
+[![Cypha Time original](https://img.youtube.com/vi/m5wsINQBorY/0.jpg)](https://www.youtube.com/watch?v=m5wsINQBorY "Cypha Time original")
+
