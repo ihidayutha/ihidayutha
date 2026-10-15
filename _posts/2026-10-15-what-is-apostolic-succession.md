@@ -1,4 +1,4 @@
-+ Maranatha (The early Christians greeted one another with the Syriac-Aramaic phrase mentioned by the Apostle Paul in his First Letter to the Corinthians 16:22. Maranatha, meaning, the Lord is coming or Come, Lord Jesus! With this statement, the believers encourage one another to endure hardships, persevere through difficulties, and continue striving, for the Lord is inevitably coming to reward each one according to his deeds, Matthew 16:27)
+\+ Maranatha (The early Christians greeted one another with the Syriac-Aramaic phrase mentioned by the Apostle Paul in his First Letter to the Corinthians 16:22. Maranatha, meaning, the Lord is coming or Come, Lord Jesus! With this statement, the believers encourage one another to endure hardships, persevere through difficulties, and continue striving, for the Lord is inevitably coming to reward each one according to his deeds, Matthew 16:27)
 
 source:
 
